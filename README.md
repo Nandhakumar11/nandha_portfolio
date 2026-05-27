@@ -120,4 +120,4 @@ Conducted a structured wireless penetration test in a lab environment simulating
 
 Feel free to reach out for collaboration, opportunities, or questions about any of the projects above.
 
-📧 **nandhabs01@gmail.com** | 📍 Kitchener, ON | ✅ Eligible to work in Canada
+📧 **nandhabs01@gmail.com** | 📍 Toronto, ON | ✅ Eligible to work in Canada
