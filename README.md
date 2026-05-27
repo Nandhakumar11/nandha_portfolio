@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Nandhakumar Balaji
 
 **Data Analyst | Big Data & Network Security Graduate Student**
-📍 Kitchener, ON | 📧 nandhabs01@gmail.com | 📞 +1 437-878-6415
+📍 Toronto, ON | 📧 nandhabs01@gmail.com | 📞 +1 437-878-6415
 
 ---
 
